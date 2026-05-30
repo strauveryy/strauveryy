@@ -2,7 +2,7 @@
 
 ### Hi, I'm Auvrey! ⋆.ೃ࿔🌸*:･ 
 
-꒰ᐢ. .ᐢ꒱₊˚⊹ Aspiring UI/UX Designer and Wev developer </br>
+꒰ᐢ. .ᐢ꒱₊˚⊹ Aspiring UI/UX Designer / Web Developer </br>
 ˖𓍢ִ໋❀.ೃ࿔ Studying Information Technology at the University of Science and Technology of Southern Philippines </br>
 .ೀ Currently learning about Web Development  </br>
 
